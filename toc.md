@@ -9,7 +9,7 @@
 * Co-Opting Intersex Narratives (COIN) [AMAB/AFAB]
 * Why don't GCs like the trans community?
 * [Intro to Gender Critical Feminism](intro-gc.md)
-* [Intro to transfeminism](intro-tf.md)
+* [Intro to Transfeminism](intro-tf.md)
 * [Who becomes Gender Critical?](who-gc.md)
 * Brief history of each
 * The label "TERF"
