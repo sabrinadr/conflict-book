@@ -21,4 +21,6 @@ Gender is an oppressive hierarchy, used to imprison and exploit natal females by
 # Identity Politics
 * **Membership:** Natal females
 * **Common Oppression:** Class-based oppression of natal females by natal males through Patriarchal narratives of innate gender.
-* **Objectives:** Liberation of natal females from the confines of gender by destroying the innate gender narrative.
+* **Objectives:**
+ * Liberation of natal females from the confines of gender by destroying the innate gender narrative.
+ * Empowerment of natal females.

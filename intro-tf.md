@@ -19,4 +19,6 @@ Rather than seeing gender as a limitation or a prison, Transfeminists see gender
 # Identity Politics
 * **Membership:** Everyone alienated from Patriarchal power.
 * **Common Oppression:** The hierarchy of gender, but not necessarily gender itself.
-* **Objectives:** Liberation of its members from Patriarchy by destroying the gender hierarchy.
+* **Objectives:**
+ * Acceptance of the ways transgender people use gender to navigate the world and define themselves.
+ * Destruction of Patriarchy by destroying the gender hierarchy.
