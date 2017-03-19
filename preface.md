@@ -21,4 +21,8 @@ I want us to understand what we're fighting about! Each side has *such a* poor p
 
 # Are you a TERF?
 
-I'm trans! I don't hate myself *nearly enough* to believe my entire existence is problematic. I'm just trying to like, negotiate and translate, build a bridge of understanding.
+I'm trans! I don't hate myself *nearly enough* to believe my entire existence is problematic. I'm just trying to like, negotiate and translate, build a bridge of understanding. I'm not taking sides, *as much as I can.*
+
+# How do I get ahold of you?
+
+I'm u/MadGenderScientist on Reddit. DM me if you have any questions.
