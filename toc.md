@@ -3,10 +3,14 @@
 
 # Table of Contents
 
+* [Preface](preface.md)
+* [Introduction](intro.md)
+* [Glossary](glossary.md)
 * Co-Opting Intersex Narratives (COIN) [AMAB/AFAB]
 * Why don't GCs like the trans community?
 * [Intro to Gender Critical Feminism](intro-gc.md)
-* Intro to transfeminism
+* [Intro to transfeminism](intro-tf.md)
+* [Who becomes Gender Critical?](who-gc.md)
 * Brief history of each
 * The label "TERF"
 * The label "cis"
@@ -28,5 +32,4 @@
 * Ethics of HRT and surgery
 * Public facilities (e.g. locker rooms)
 * No-platforming
-* Why people become GC
 * Unity?
