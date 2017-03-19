@@ -25,4 +25,4 @@ I'm trans! I don't hate myself *nearly enough* to believe my entire existence is
 
 # How do I get ahold of you?
 
-I'm u/MadGenderScientist on Reddit. DM me if you have any questions.
+I'm [u/MadGenderScientist](https://www.reddit.com/user/MadGenderScientist) on Reddit. DM me if you have any questions.
