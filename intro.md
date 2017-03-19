@@ -14,7 +14,7 @@ Trans women *are* included, since they have female gender identity, and are alie
 ## Gender Critical Feminism
 Gender Critical feminism *doesn't* accept the trans narrative. Feminism is the class struggle between natal males and natal females, by liberating natal females from gender.
 
-Trans natal males *aren't* included, since they aren't part of the oppressed class of natal females, and have male socialization.
+Trans natal males *aren't* included, since they aren't part of the oppressed class of natal females, and have male privilege.
 
 # Why are we fighting?
 Gender critical feminism and Transfeminism have conflicting visions about the purpose of feminism, and who should be included. That created a wedge between two irreconcilable feminisms.
