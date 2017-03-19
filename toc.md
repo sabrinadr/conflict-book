@@ -33,3 +33,4 @@
 * Public facilities (e.g. locker rooms)
 * No-platforming
 * Unity?
+* [Editorial: Gender is a Disability](ed-gender-disability.md)
