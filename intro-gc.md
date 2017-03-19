@@ -17,3 +17,8 @@ Natal females enter the world as blank slates, but are socialized into becoming 
 By believing the narrative of innate gender identity, natal females become complicit in their own imprisonment!
 
 Gender is an oppressive hierarchy, used to imprison and exploit natal females by natal males. Gender Critical feminism seeks to liberate natal females from this prison.
+
+# Identity Politics
+**Membership:** Natal females
+**Common Oppression:** Class-based oppression of natal females by natal males through Patriarchal narratives of innate gender.
+**Objectives:** Liberation of natal females from the confines of gender by destroying the innate gender narrative.
