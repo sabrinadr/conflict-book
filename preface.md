@@ -2,7 +2,7 @@
 
 # Warning!
 
-This book is filled with "TERF" heresy. If you're trans, and afraid of TERFs (and you have good reasons to be - Gender Critical feminism is kind of an existential threat!) You might want to steer clear. This book isn't a safe space.
+This book is filled with "TERF" heresy. If you're trans, and afraid of TERFs (and you have good reasons to be - Gender Critical feminism can seem like an existential threat!) You might want to steer clear. This book isn't a safe space.
 
 Make sure you take breaks if you're feeling overwhelmed, and give yourself some mental space. Talking to a friend helps (hell, talk to me!)
 
