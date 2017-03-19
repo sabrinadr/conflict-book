@@ -1,8 +1,11 @@
+# Gender Critical Feminism vs. Transfeminism
+## Describing the conflict!
+
 # Table of Contents
 
 * Co-Opting Intersex Narratives (COIN) [AMAB/AFAB]
 * Why don't GCs like the trans community?
-* Intro to GC and radfem feminism
+* [Intro to Gender Critical Feminism](intro-gc.md)
 * Intro to transfeminism
 * Brief history of each
 * The label "TERF"

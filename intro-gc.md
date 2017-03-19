@@ -1,4 +1,4 @@
-# Intro to Gender Critical feminism
+# Intro to Gender Critical Feminism
 
 Gender Critical feminism is exactly what it says - critical of gender.
 
