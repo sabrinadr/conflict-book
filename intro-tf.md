@@ -17,6 +17,6 @@ But that's **bullshit!** Gender Criticals have fallen into the trap of believing
 Rather than seeing gender as a limitation or a prison, Transfeminists see gender as *freedom.* Keeping that freedom means fighting Patriarchy by fighting misogyny and male privilege, not our own right to fearlessly define and express our gender, and be treated as equals regardless!
 
 # Identity Politics
-**Membership:** Everyone alienated from Patriarchal power.
-**Common Oppression:** The hierarchy of gender, but not necessarily gender itself.
-**Objectives:** Liberation of its members from Patriarchy by destroying the gender hierarchy.
+* **Membership:** Everyone alienated from Patriarchal power.
+* **Common Oppression:** The hierarchy of gender, but not necessarily gender itself.
+* **Objectives:** Liberation of its members from Patriarchy by destroying the gender hierarchy.
